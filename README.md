@@ -3,4 +3,4 @@ I am passionate about the FMCG industry, and this portfolio brings together the 
 
 Below are my Projects for AdCentral: 
 
-[Cci] (https://drive.google.com/file/d/1_FQ8g2EcC0HCxne3I1siZW0DYOvjhmfa/view?usp=drive_link) - This was done after extensive research and designing and got 100+ impressions and 10+ reactions on Linkedin. 
+[Cci](https://drive.google.com/file/d/1_FQ8g2EcC0HCxne3I1siZW0DYOvjhmfa/view?usp=drive_link) - This was done after extensive research and designing and got 100+ impressions and 10+ reactions on Linkedin. 

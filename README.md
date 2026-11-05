@@ -12,3 +12,6 @@ Below are my Projects for AdCentral:
 
 [GP](https://drive.google.com/file/d/18wx_rWq00d1LNM2XZN3fPX_MdbuACbwh/view?usp=drive_link) - This was directed to the team after  research and designing and got 100+ impressions on Linkedin. 
 
+Below are my Projects for PolyJute:
+
+[26th March Post](https://drive.google.com/file/d/1T9vvbve1oRbYjzeXjk4z-Z1WkFSgy607/view?usp=drive_link) - Edited for the Independence day and It gained 300+ impressions 

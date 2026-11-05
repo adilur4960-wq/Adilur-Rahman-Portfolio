@@ -2,7 +2,9 @@
 I am passionate about the FMCG industry, and this portfolio brings together the work I've done in the space. It includes campaigns I've contributed to, social media posters that have reached audiences online, primary research I've conducted, and videos I've created. Together, these show how I approach consumer-focused work with creativity and research.
 
 Below is my works with 10 Minute School:
+
 [Introduction Video link](https://www.facebook.com/share/r/1FUMa9Tbck/) - The whole reel was scripted, edited and was self documented. It gain around 25,000 views from all social platfrom's whilst the video was Ranked as the 2nd best Video of the Campus Crew edition.
+
 
 Below are my Projects for AdCentral: 
 
